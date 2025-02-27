@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ...CJCU
 - 💞️ I’m looking to collaborate on ...學生
 - 📫 How to reach me ...113b05978@mailst.cjcu.edu.tw
-- 😄 Pronouns: ...god cai
-- ⚡ Fun fact: ...228922
+- 😄 Pronouns: ...TW G-Dragon
+- ⚡ Fun fact: ...TOO BAD
 
 <!---
 kun2-25/kun2-25 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
