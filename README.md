@@ -5,7 +5,8 @@
 - 📫 How to reach me ...113b05978@mailst.cjcu.edu.tw
 - 😄 Pronouns: ...TW G-Dragon
 - ⚡ Fun fact: ...TOO BAD
-
+  松山機場實習
+  Sabre證照
 <!---
 kun2-25/kun2-25 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
